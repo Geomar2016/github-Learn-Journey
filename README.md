@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Geomar2016
+# 👋 Hi, My Name Is Geomar!
 
 Welcome to my GitHub profile!
 
